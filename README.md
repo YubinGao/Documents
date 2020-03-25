@@ -1,2 +1,2 @@
 # Documents
-Work and study documengs
+Work and study documents
